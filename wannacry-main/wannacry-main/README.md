@@ -1,2 +1,2 @@
 # wannacry
-minecraft client for kyare
+minecraft client 
