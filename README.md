@@ -1,3 +1,3 @@
 # wannacry-minecraft-ghost-client
 
-sum pasted shit ig
+sum pasted shit ive cracked
