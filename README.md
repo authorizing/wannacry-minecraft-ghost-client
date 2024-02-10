@@ -1,3 +1,3 @@
 # wannacry-minecraft-ghost-client
 
-sum pasted shit ive cracked
+I've cracked this pasted ghost client for minecraft in the past, why not just giving yall the source code :D
